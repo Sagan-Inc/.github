@@ -23,3 +23,4 @@ With a focus on innovation and customer satisfaction, Sagan Inc is poised to bec
 
 - [Marcos](mailto:andremarcos967@gmail.com)
 - [Danilo](mailto:danilocsi88@gmail.com)
+- [William](mailto:williamulguim2014@gmail.com)
